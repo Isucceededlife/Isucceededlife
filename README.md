@@ -4,6 +4,8 @@
 ## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
 I'm transgender! I use She/Her.
 
+Little fact! My nickname "Meowter" was one of my first internet names, you may know me was Meowterspace or MeowyStar.
+
 # Interests! 📃
 - Touhou Project!
 - Changed!
@@ -17,3 +19,4 @@ I'm transgender! I use She/Her.
 # DNI! ✖️
 Proshippers, racists, homophobic/transphobic ppl, anyone who makes "r,pe jokes"
 
+That's all for now! thx for reading.
