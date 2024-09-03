@@ -3,4 +3,4 @@
 
 ## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
 
-https://cdn.discordapp.com/attachments/951319551700783135/1277968972372774982/attachment.gif?ex=66d8535a&is=66d701da&hm=6f73d5f0c3123ca4a6975065d9466d5965eb8106ce20f526f3baf722b9bee71a&
+[image](https://cdn.discordapp.com/attachments/951319551700783135/1274633478092095500/attachment.gif?ex=66d8b72e&is=66d765ae&hm=f5e605fc350ff4f84c3343128e2fbce989191a49b5cf4995b0c19573d520959f&)
