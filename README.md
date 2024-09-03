@@ -1,6 +1,11 @@
 # IF YOU'RE COMING FROM THE "WORLDBOX - GOD SIMULATOR" DISCORD, DNI FROM THIS POINT!
 ![image](https://github.com/user-attachments/assets/a7c44aa7-3081-4363-a2b7-25ed329f6e71)
 
+
+# A bit of a warning, I'm Autistic and english is NOT my first language, I may make mistakes.
+
+
+
 ## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
 I'm transgender! I use She/Her.
 
