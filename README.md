@@ -3,4 +3,16 @@
 
 ## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
 
-[image](https://cdn.discordapp.com/attachments/951319551700783135/1274633478092095500/attachment.gif?ex=66d8b72e&is=66d765ae&hm=f5e605fc350ff4f84c3343128e2fbce989191a49b5cf4995b0c19573d520959f&)
+
+# Interests! 📃
+Touhou Project!
+Changed!
+The Binding of Isaac reptenance!
+Slay the Princess!
+Portal!
+Spore!
+Pocket Card Jockey!
+(Roblox): Pressure, Bee Swarm Simulator, Some Tycoons.
+
+# DNI! ✖️
+Proshippers, racists, homophobic/transphobic ppl, anyone who makes "r,pe jokes"
