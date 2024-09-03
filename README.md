@@ -3,8 +3,10 @@
 
 
 # A bit of a warning, I'm Autistic and english is NOT my first language, I may make mistakes.
+Thank you for acknowledging! continue on if you wish to.
 
 
+- lalalaaaa- 💃
 
 ## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
 I'm transgender! I use She/Her.
