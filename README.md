@@ -24,6 +24,6 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - (Roblox): Pressure, Bee Swarm Simulator, Some Tycoons.
 
 # DNI! ✖️
-Proshippers, racists, homophobic/transphobic ppl, anyone who makes "r,pe jokes"
+Racists, homophobic/transphobic ppl, anyone who makes "r,pe jokes"
 
 That's all for now! thx for reading.
