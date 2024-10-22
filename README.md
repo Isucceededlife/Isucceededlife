@@ -8,7 +8,7 @@ Thank you for acknowledging! continue on if you wish to.
 
 - lalalaaaa- 💃
 
-## You can call me Isucceededlife, Gummy, Adversary, Parsee, Meowter, or Okina!
+## You can call me Isucceededlife, Gummy, Adversary, Meowter, or Okina!
 I'm transgender! I use She/Her.
 
 Little fact! My nickname "Meowter" was one of my first internet names, you may know me was Meowterspace or MeowyStar.
