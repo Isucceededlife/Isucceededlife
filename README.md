@@ -21,9 +21,11 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Portal!
 - Spore!
 - Pocket Card Jockey!
+- Windowkill!
+- Class of 09!
 - (Roblox): Pressure, Bee Swarm Simulator, Some Tycoons.
 
 # DNI! ✖️
-Racists, homophobic/transphobic ppl, anyone who makes "r,pe jokes"
+Racists, homophobic/transphobic ppl, antis.
 
-That's all for now! thx for reading.
+That's all for now! thx for reading me!
