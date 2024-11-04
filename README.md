@@ -1,4 +1,4 @@
-#  ⚠️ IF YOU'RE COMING FROM THE "WORLDBOX - GOD SIMULATOR" DISCORD, DNI FROM THIS POINT! IF NOT, PLEASE CONTINUE READING AS YOU ARE WELCOMED!!!
+#  ⚠️ Coming from worldbox due to my ban? GET OUT. NOW. you people are not welcomed here at all. if you are not from worldbox, you may read further.
 ![image](https://github.com/user-attachments/assets/a7c44aa7-3081-4363-a2b7-25ed329f6e71)
 
 
@@ -8,7 +8,7 @@ Thank you for acknowledging! continue on if you wish to.
 
 - lalalaaaa- 💃
 
-## You can call me Isucceededlife, Gummy, Adversary, Meowter, or Okina!
+## You can call me Isucceededlife, Gummy, Meowter, Okina, Judas, or Glisten!
 I'm transgender! I use She/Her.
 
 Little fact! My nickname "Meowter" was one of my first internet names, you may know me was Meowterspace or MeowyStar.
@@ -23,9 +23,9 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Pocket Card Jockey!
 - Windowkill!
 - Class of 09!
-- (Roblox): Pressure, Bee Swarm Simulator, Some Tycoons.
+- (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Evade, etc...
 
 # DNI! ✖️
-Racists, homophobic/transphobic ppl, antis.
+Racists, homophobic/transphobic ppl, *Antis.*
 
 That's all for now! thx for reading me!
