@@ -1,4 +1,4 @@
-#  ⚠️ Coming from worldbox due to my ban? GET OUT. NOW. you people are not welcomed here at all. if you are not from worldbox, you may read further.
+#  ⚠️ Coming from worldbox discord due to my ban? GET OUT. NOW. you people are not welcomed here at all. if you are not from worldbox, you may read further.
 ![image](https://github.com/user-attachments/assets/a7c44aa7-3081-4363-a2b7-25ed329f6e71)
 
 
