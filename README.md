@@ -1,6 +1,6 @@
 #  ⚠️ Coming from worldbox discord due to my ban? GET OUT. NOW. you people are not welcomed here at all. if you are not from worldbox, you may read further.
 ![image](https://github.com/user-attachments/assets/a7c44aa7-3081-4363-a2b7-25ed329f6e71)
-
+I rlly need to update that thing, lol I'm too lazy... ⭐
 
 # A bit of a warning, I'm Autistic and english is NOT my first language, I may make mistakes.
 Thank you for acknowledging! continue on if you wish to.
