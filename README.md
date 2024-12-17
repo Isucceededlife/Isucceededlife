@@ -26,6 +26,6 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Evade, etc...
 
 # DNI! ✖️
-Racists, homophobic/transphobic ppl, *Antis.*
+Racists, homophobic/transphobic ppl, That's all I can think of that isn't specific really.
 
 That's all for now! thx for reading me!
