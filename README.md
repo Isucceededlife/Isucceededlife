@@ -17,7 +17,6 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Touhou Project!
 - Changed!
 - The Binding of Isaac reptenance!
-- Slay the Princess!
 - Portal!
 - Spore!
 - Pocket Card Jockey!
