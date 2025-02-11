@@ -1,5 +1,4 @@
-#  ⚠️ Coming from worldbox discord due to my ban? GET OUT. NOW. you people are not welcomed here at all. if you are not from worldbox, you may read further.
-![image](https://github.com/user-attachments/assets/a7c44aa7-3081-4363-a2b7-25ed329f6e71)
+#  ⚠️ This thing is MASSIVELY poor quality and I will probably get to remaking it soon, for now please bare with this hell of a readme.
 I rlly need to update that thing, lol I'm too lazy... ⭐
 
 # A bit of a warning, I'm Autistic and english is NOT my first language, I may make mistakes.
@@ -22,6 +21,8 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Pocket Card Jockey!
 - Windowkill!
 - Class of 09!
+- Subnautica!
+- Helltaker!
 - (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Evade, etc...
 
 # DNI! ✖️
