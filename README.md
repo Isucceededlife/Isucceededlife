@@ -1,6 +1,5 @@
-#  ⚠️ This thing is MASSIVELY poor quality and I will probably get to remaking it soon, for now please bare with this hell of a readme.
-I rlly need to update that thing, lol I'm too lazy... ⭐
-
+#  ⚠️ This thing is MASSIVELY poor quality and I will probably get to remaking it soon, for now please bare with this hell of a readme until I do! sorrys.
+Also removed the character banner, it looked a bit bad.
 # A bit of a warning, I'm Autistic and english is NOT my first language, I may make mistakes.
 Thank you for acknowledging! continue on if you wish to.
 
