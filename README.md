@@ -23,7 +23,7 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Subnautica!
 - Helltaker!
 - Mouthwashing
-- (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, etc...
+- (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Regretevator... etc...
 
 # DNI! ✖️
 Racists, homophobic/transphobic ppl, That's all I can think of that isn't specific really.
