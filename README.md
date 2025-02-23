@@ -6,7 +6,7 @@ Thank you for acknowledging! continue on if you wish to.
 
 - lalalaaaa- 💃
 
-## You can call me Isucceededlife, Gummy, Meowter, Okina, Judas, or Glisten!
+## You can call me Isucceededlife, Folly, Meowter, Okina, Judas, or Glisten!
 I'm transgender! I use She/Her.
 
 Little fact! My nickname "Meowter" was one of my first internet names, you may know me was Meowterspace or MeowyStar.
