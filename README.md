@@ -22,7 +22,7 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Class of 09!
 - Subnautica!
 - Helltaker!
-- Mouthwashing
+- Mouthwashing!
 - (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Regretevator... etc...
 
 # DNI! ✖️
