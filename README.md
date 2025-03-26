@@ -14,7 +14,7 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 # Interests! 📃
 - Touhou Project!
 - Changed!
-- The Binding of Isaac reptenance!
+- The Binding of Isaac Reptenance!
 - Portal!
 - Spore!
 - Pocket Card Jockey!
@@ -23,7 +23,8 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - Subnautica!
 - Helltaker!
 - Mouthwashing!
-- (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Regretevator... etc...
+- Limbus Company!
+- (Roblox): Pressure, Bee Swarm Simulator, Dandy's world, Regretevator, Forsaken, Rochas313 ARG
 
 # DNI! ✖️
 Racists, homophobic/transphobic ppl, That's all I can think of that isn't specific really.
