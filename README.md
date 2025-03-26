@@ -17,7 +17,7 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 - The Binding of Isaac Reptenance!
 - Portal!
 - Spore!
-- Pocket Card Jockey!
+- Pocket Card Jockey <- not rlly anymore
 - Windowkill!
 - Class of 09!
 - Subnautica!
