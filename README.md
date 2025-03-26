@@ -13,7 +13,7 @@ Little fact! My nickname "Meowter" was one of my first internet names, you may k
 
 # Interests! 📃
 - Touhou Project!
-- Changed!
+- Changed <- not rlly anymore
 - The Binding of Isaac Reptenance!
 - Portal!
 - Spore!
