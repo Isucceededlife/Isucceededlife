@@ -1,4 +1,4 @@
-im not a proshipper stop asking/srs
+hi
 
 System, autistic, we have epilepsy too. 
 try to be nice, thank you. english isnt our first either.
