@@ -5,4 +5,4 @@ try to be nice, thank you. english isnt our first either.
 
 prolly not gonna work on this anytime soon.
 
-https://media1.tenor.com/m/Op9MwVEBR64AAAAC/lobotomy-corp-lobotomy-corporation.gif
+
