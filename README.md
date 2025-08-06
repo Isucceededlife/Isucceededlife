@@ -1,6 +1,8 @@
 hi
 
-System, autistic, we have epilepsy too. 
+System, "low functioning" autistic, we have epilepsy too. 
 try to be nice, thank you. english isnt our first either.
 
-im prolly not gonna work on this anytime soon
+prolly not gonna work on this anytime soon.
+
+https://media1.tenor.com/m/Op9MwVEBR64AAAAC/lobotomy-corp-lobotomy-corporation.gif
